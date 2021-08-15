@@ -1,0 +1,21 @@
+from _typeshed import FileDescriptorLike
+
+
+０９ふおいds自fジュd氏fjkさdjf位jfjsjdf時dsjfjさsどjfkjsdfkjsjdjkfjsdjfkんsdklvjdsf
+sfjsdfjkdsj’さ
+アフォdjそpjfjs
+sdjf位じゃしdjf
+fだkfおsjd
+フィsdfj’
+jsフォdじょpあFileDescriptorLikeあsfdじょsjdfjfj
+
+jファおpsj
+
+jfおsdjfjsd
+フォアj
+j
+亜jf蘇dj’あ
+fdジョアjfs
+あfじjfアウェイjf
+
+時絵wdj’
